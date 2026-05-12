@@ -1,6 +1,6 @@
-# (•⩊ •マ " Room. " 
+# (ᵕ—ᴗ—) " *Calm*. " 
 
-<img width="1000" height="560" alt="Trafalrag Law Tarafalgar D Water Law GIF – Trafalrag Law Tarafalgar D Water Law One Piece – discover and share GIFs" src="https://github.com/user-attachments/assets/9d0a68f3-5bcf-4e9f-b9df-5e4d44223f7e" />
+<img width="1000" height="300" alt="Corazón" src="https://github.com/user-attachments/assets/9dd5c2e2-3cc3-40d7-b18b-c3f0bf5915f8" />
 
 ⠀⠀ c/h⠀*f*reely⠀offt⠀&⠀*i*wc
 
